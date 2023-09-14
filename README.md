@@ -1,6 +1,7 @@
 # Hello! 👋
 
 🌐 My name is Gabriele. I live in Florence, Italy. Working as Security Engineer. 🔐
+
 🏟️🏎️📚Beyond the world of technology, I have a deep love for sports, motorsports and i'm an avid reader.
 
 
