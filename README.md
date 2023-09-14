@@ -8,6 +8,6 @@
 
 🚀 Feel free to reach out to me for professional networking and discussing ideas. 🤝
 
-# Links
+📫Email: 	gabriele.piccini@pm.me
 
 📫 [Linkedin](https://www.linkedin.com/in/gabriele-piccini/)
